@@ -1,4 +1,4 @@
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; ![MasterHead](https://media1.tenor.com/m/wF5RiCnfj34AAAAd/work-computer.gif)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; ![MasterHead](https://media1.tenor.com/m/wF5RiCnfj34AAAAd/work-computer.gif)
 <h1 align="center">Hi 👋, I'm Bünyamin Öter</h1>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
